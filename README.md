@@ -34,6 +34,8 @@ Helping customers understand the value of Lactobacillus casei strain Shirota.
 
 When Yakult was first put on sale in 1935, there was no other product with the revolutionary idea of furthering preventive medicine through the consumption of live microorganisms. 
 
+When Yakult, a fermented milk drink containing Lactobacillus casei strain Shirota, was first put on sale in 1935, there was no other product with the revolutionary idea of furthering preventive medicine through the consumption of live microorganisms. So, naturally, their activities had to begin with explaining to customers the value and effectiveness of Lactobacillus casei strain Shirota, and helping them to understand this new concept. And this basic approach has remained unchanged till the present day for Yakult. They aim to always provide as many customers as possible with timely access to the ever growing research results and evidence they have accumulated, as well as to the steadily advancing knowledge of life science, striving daily to achieve this by furthering the knowledge of their Yakult Ladies and employees through our systematic education system, and promoting grassroots awareness-raising activities globally. Specifically, in addition to the daily work done through home delivery by Yakult Ladies and the in-store daily activities of sales staff, they also focus on dispatching guest lecturers to schools, holding health-related lectures open to the public, and conducting plant tours, as well as sharing information with opinion leaders including doctors, nurses, registered dietitians, pharmacists, and probiotics researchers.
+
 - Continue
 
 Having customers continue consuming Yakult products regularly.
