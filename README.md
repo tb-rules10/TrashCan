@@ -1,6 +1,6 @@
 # TrashCan
 
-## Food & Beverages
+## Line of Products
 
 - YAKULT
 
@@ -22,7 +22,7 @@ It is also reduced in sugar content and is lower in calories compared to Yakult 
 
 
 
-
+#### Note - In some of the contries, Yakult have also expanded their business to Pharmaceuticals & Cosmetics.
 
  
 
